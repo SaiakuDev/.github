@@ -1,2 +1,2 @@
-# SaiakuDev
-lego game cheaters vs staff team
+# Saiaku
+https://discord.gg/GzSQV7CsJX
